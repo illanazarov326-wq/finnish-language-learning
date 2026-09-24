@@ -62,6 +62,22 @@ Akkusatiivi имеет **три формы**:
 > **Timo:** Joo, **vien ne** varmasti! Haluatko, että **ostan maitoa** kaupasta? *(Partitiivi: вещество)*  
 > **Anna:** Osta mieluummin **yksi leipä** *(Päätteetön / императив: без окончания)*.
 
+
+---
+
+## 🔥 5 продвинутых слов этого урока (Päivän sanat B1)
+
+1. **selvittää** (выяснять, разбираться)  
+   *Aion **selvittää** tämän virheen heti huomisaamuna.* (Я намереваюсь разобраться с этой ошибкой прямо завтра утром.)
+2. **päättää** (принимать решение, решать)  
+   *Olen **päättänyt** ostaa uuden tietokoneen.* (Я решил купить новый компьютер.)
+3. **monimutkainen** (сложный, запутанный)  
+   *Säännöt tuntuivat aluksi **monimutkaisilta**, mutta nyt ymmärrän ne.* (Правила сначала казались сложными, но теперь я их понимаю.)
+4. **tehokas** (эффективный, действенный)  
+   *Tämä oli erittäin **tehokas** tapa oppia objektisäännöt.* (Это был очень эффективный способ выучить правила объекта.)
+5. **joten** (поэтому, так что)  
+   *Sain työt valmiiksi ajoissa, **joten** voin lähteä kotiin.* (Я закончил работу вовремя, так что могу идти домой.)
+
 ---
 
 ## ⏱️ Часть 4: Практические упражнения (10 минут)
