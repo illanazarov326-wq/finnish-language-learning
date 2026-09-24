@@ -51,6 +51,22 @@ $$\text{Основа глагола} + \mathbf{-ma- / -mä-} + \text{Оконч�
 | **-massa / -mässä** | Inessiivi (Где?) | Находиться в процессе делания | *Olen syö**mässä***. (Я прямо сейчас ем.)<br>*Hän on nukku**massa***. (Он спит.) |
 | **-masta / -mästä** | Elatiivi (Откуда?) | Возвращаться с какого-то дела | *Tulen uimasta*. (Я возвращаюсь с плавания.) |
 
+
+---
+
+## 🔥 5 продвинутых слов этого урока (Päivän sanat B1)
+
+1. **tavoite** / **päämäärä** (цель, ориентир)  
+   *Minun **tavoitteeni** on oppia puhumaan sujuvasti suomea.* (Моя цель — научиться бегло говорить по-фински.)
+2. **osallistua** (+ mihin: принимать участие)  
+   *Aion **osallistua** kielikurssille ensi kuussa.* (Я собираюсь принять участие в языковом курсе в следующем месяце.)
+3. **itsenäinen** (самостоятельный, независимый)  
+   *Hän tekee työtään hyvin **itsenäisesti**.* (Он выполняет свою работу очень самостоятельно.)
+4. **luotettava** (надёжный)  
+   *Tämä sanakirja on erittäin **luotettava** lähde.* (Этот словарь — очень надёжный источник.)
+5. **vähitellen** / **pikkuhiljaa** (постепенно, шаг за шагом)  
+   *Vaikeatkin asiat alkavat sujua **vähitellen**.* (Даже трудные вещи начинают получаться постепенно.)
+
 ---
 
 ## ⏱️ Часть 4: Контрольный мини-тест блока A2 → B1 (10 минут)
