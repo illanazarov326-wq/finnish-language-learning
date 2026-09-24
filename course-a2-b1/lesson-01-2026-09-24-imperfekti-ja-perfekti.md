@@ -68,6 +68,22 @@
 > **Laura:** **Kävin** siellä viime talvena. **Matkustin** Rovaniemelle junalla ja **vietin** siellä viikon. Näin jopa revontulet! *(Imperfekti: цепь событий прошлой зимой)*  
 > **Matti:** Mahtavaa! Minä **en ole vielä nähnyt** revontulia, mutta haluaisin nähdä. *(Perfekti: к настоящему моменту ещё нет)*
 
+
+---
+
+## 🔥 5 продвинутых слов этого урока (Päivän sanat B1)
+
+1. **kuitenkin** (тем не менее, однако, всё же)  
+   *Oli myöhäistä, mutta tein **kuitenkin** tehtävän loppuun.* (Было поздно, но я всё же закончил задание.)
+2. **kokemus** (опыт, переживание)  
+   *Matka Lappiin oli unohtumaton **kokemus**.* (Поездка в Лапландию была незабываемым опытом.)
+3. **onnistua** (+ missä: удаваться, успешно получаться)  
+   *Projekti **onnistui** eilen todella hyvin.* (Проект вчера удался очень хорошо.)
+4. **vaikuttaa** (+ miltä: казаться / + mihin: влиять)  
+   *Tämä kaupunki **vaikuttaa** hyvin viihtyisältä.* (Этот город кажется очень уютным.)
+5. **todennäköisesti** (вероятно, скорее всего)  
+   *Hän on **todennäköisesti** jo lähtenyt kotiin.* (Он, скорее всего, уже ушёл домой.)
+
 ---
 
 ## ⏱️ Часть 4: Практические упражнения (10 минут)
