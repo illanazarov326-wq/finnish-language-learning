@@ -58,6 +58,22 @@ $$\text{Основа глагола} + \mathbf{-isi-} + \text{Личное ок�
 > **Virkailija:** Katsotaanpa yhdessä. Tähän kohtaan **kannattaisi** laittaa henkilötunnus. Jos teillä **olisi** passi mukana, se **nopeuttaisi** käsittelyä.  
 > **Asiakas:** Voi kiitos paljon! Se **olisi** todella ystävällistä.
 
+
+---
+
+## 🔥 5 продвинутых слов этого урока (Päivän sanat B1)
+
+1. **harkita** (обдумывать, взвешивать решение)  
+   ***Harkitsisin** asiaa vielä kerran ennen päätöstä.* (Я бы обдумал этот вопрос ещё раз перед решением.)
+2. **kannattaa** (+ 1 инфинитив: стоит, имеет смысл сделать)  
+   *Tätä vaihtoehtoa **kannattaisi** kokeilla.* (Этот вариант стоило бы попробовать.)
+3. **ehdottomasti** (безусловно, непременно, точно)  
+   *Suosittelen tätä kurssia **ehdottomasti** kaikille.* (Я безусловно рекомендую этот курс всем.)
+4. **mahdollisuus** (возможность, шанс)  
+   *Olisiko meillä **mahdollisuutta** siirtää kokousta?* (Была ли бы у нас возможность перенести встречу?)
+5. **välttämätön** (необходимый, непременный)  
+   *Tämä asiakirja olisi **välttämätön** hakemuksen käsittelyssä.* (Этот документ был бы необходим при обработке заявления.)
+
 ---
 
 ## ⏱️ Часть 4: Практические упражнения (10 минут)
