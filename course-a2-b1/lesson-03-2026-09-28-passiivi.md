@@ -73,6 +73,22 @@
 > 4. Jätteet **lajitellaan** aina asianmukaisesti pihan jätekatoksessa.
 > 5. Lemmikkieläimet **pidetään** kytkettyinä piha-alueella.
 
+
+---
+
+## 🔥 5 продвинутых слов этого урока (Päivän sanat B1)
+
+1. **sopimus** (договор, соглашение)  
+   *Vuokra**sopimuksessa** määritellään taloyhtiön säännöt.* (В договоре аренды определяются правила жилого дома.)
+2. **vastuu** (ответственность)  
+   *Asukkaalla on **vastuu** asunnon kunnosta.* (Жилец несёт ответственность за состояние квартиры.)
+3. **muutos** (изменение, перемена)  
+   *Taloyhtiössä tehtiin suuria **muutoksia** viime vuonna.* (В жилищном товариществе в прошлом году провели большие изменения.)
+4. **turvallinen** (безопасный)  
+   *Tavoitteena on luoda **turvallinen** asuinympäristö kaikille.* (Цель — создать безопасную жилую среду для всех.)
+5. **pääsääntöisesti** / **yleensä** (как правило, в основном)  
+   *Remonttitöitä tehdään **pääsääntöisesti** arkipäivisin.* (Ремонтные работы проводятся, как правило, по будням.)
+
 ---
 
 ## ⏱️ Часть 4: Практические упражнения (10 минут)
